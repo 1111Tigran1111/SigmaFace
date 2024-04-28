@@ -1,2 +1,4 @@
 # SigmaFace
-Yo guck fourself!
+ok?
+do SigmaFace right now!
+
